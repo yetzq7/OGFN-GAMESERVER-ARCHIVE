@@ -7,4 +7,4 @@
 
  ** *#MadeForSkids* **
 
- Please dm @yetzq7 if you did not give anyone I downloaded these sources from permisson to leak em
+ Please dm @fnproj if you did not give anyone I downloaded these sources from permisson to leak em
